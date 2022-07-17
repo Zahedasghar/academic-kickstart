@@ -1,1 +1,1 @@
-# academic-kickstart
+# Teaching with Passion
