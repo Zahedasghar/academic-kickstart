@@ -1,1 +1,1 @@
-# Teaching with Passion
+# Academic Excellence
